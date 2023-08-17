@@ -2,7 +2,8 @@
 - 👀 I’m interested in foreign languages and in linguistics 
 - 🌱 I’m currently learning German and Catalan 
 - 💞️ I’m looking to collaborate on projects related to translation and documentation (language accuracy and SEO)
-- 📫 How to reach me ...![IMG_5069 (1)-min](https://github.com/Isabelarr05/Isabelarr05/assets/142500347/abea8471-4d80-4839-8a36-f8a5f41e9fb4)
+- 📫 How to reach me ...! 
+![Linkedin profile](https://github.com/Isabelarr05/Isabelarr05/assets/142500347/f2d1f870-e545-4256-9cbf-14197519f60b)
 
 https://www.linkedin.com/in/isabel-arroyo-anguita/ 
 <!---
