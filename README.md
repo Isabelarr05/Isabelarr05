@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Isabelarr05
-- 👀 I’m interested in foreign languages and in linguistics 
+- 👀 I’m interested in foreign languages and in linguistics. I am a Spanish native speaker and I speak fluently English and French.
 - 🌱 I’m currently learning German and Catalan 
 - 💞️ I’m looking to collaborate on projects related to translation and documentation (language accuracy and SEO)
 - 📫 How to reach me ...! 
